@@ -60,4 +60,4 @@ I am a web developer and programmer with extensive hands-on experience building 
 
 ### 🤝 Let's Connect!
 * 🌐 **Portfolio Website:** [kumarsanu.tech](https://kumarsanu.tech)
-* 💼 **LinkedIn:** [linkedin.com/in/YOUR_LINKEDIN](https://linkedin.com/in/YOUR_LINKEDIN)
+* 💼 **LinkedIn:** [linkedin.com/in/YOUR_LINKEDIN](https://www.linkedin.com/in/kumarsanump12?utm_source=share_via&utm_content=profile&utm_medium=member_android)
